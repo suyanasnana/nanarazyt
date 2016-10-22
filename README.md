@@ -1,2 +1,0 @@
-# nanarazyt
-tipstrik
